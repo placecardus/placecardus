@@ -25,7 +25,7 @@ Welcome to my GitHub profile! I am an independent developer passionate about cre
 
 - LinkedIn: [Mark Homaa](https://www.linkedin.com/in/mark_homaa)
 - Twitter: [@mark_homaa](https://twitter.com/mark_homaa)
-- Email: [your.email@example.com](mailto:hello@placecard.us)
+- Pinterest [960 printable place cards template for wedding 2024](https://www.pinterest.com/placecardus/960-printable-place-cards-for-wedding-in-2024/)
 
 ## 📝 Latest Blog Posts
 
